@@ -1,2 +1,2 @@
 # svada.co.in
-Svada: A healthy journey
+Svada: Start your healthy journey today
